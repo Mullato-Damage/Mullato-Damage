@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mullato-Damage
+- 👋 Hi, I’m @Mullatta-Damage
 - 👀 I’m interested in comics, superheroes, reading, webtoon, romance, action, fantasy, acting, movies, anime, gaming, and writing
 - 🌱 I’m currently learning robotics engineering and programming
 - 💞️ I’m looking to collaborate on The Hacksith Industries 
